@@ -22,7 +22,7 @@
 
 ---
 
-**TOHE-R Continuing Updating Soon**
+**TOHE-R Continuing Updating after 20/6/23 Confirmed (:**
 
 ---
 
